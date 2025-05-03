@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **abhipriya.kurasa@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ODvfjBkUNjQ59xlrc5ouDNkcQ6sEG3mD/view?usp=sharing](https://drive.google.com/file/d/1ODvfjBkUNjQ59xlrc5ouDNkcQ6sEG3mD/view?usp=sharing)
+- 📄 Know about my experiences [Google Drive](https://drive.google.com/file/d/194qMpFvdpfXKcZgiptNV6aHkOOVtK9NM/view?usp=sharing)
 
 - ⚡ Fun fact **I think I’m funny... even my console logs agree 😄**
 
